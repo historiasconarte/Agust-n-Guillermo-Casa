@@ -1,1 +1,2 @@
-# Agust-n-Guillermo-Casa
+# Agustín-Guillermo-Casa
+Militar y escritor, nació en Buenos Aires, el 9 de febrero entre 1902 y 1905, de donde egresó como subteniente de expedicionario al Desierto, le valió la Medalla de Oro y fue juez de Instrucción Militar. Se retiró del servicio activo en 1934, y alcanzó el grado de teniente coronel. Pero el soldado debió ceder finalmente el paso al literato. Se inició en las letras, usando el seudónimo inglés de “Guillermo House”, que es la traducción textual de un apellido de hispa-no linaje: Agustín Guillermo Casa. 
